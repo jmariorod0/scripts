@@ -9,6 +9,7 @@ Contacto:
 Para preguntas, sugerencias o reportes de errores, puedes contactarme en:
 
 Jhon Mario Rodriguez - Mg. TIG
+
 Email: jmariorod9@gmail.com
 
 LinkedIn: https://www.linkedin.com/in/jmariorod/
